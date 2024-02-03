@@ -1,1 +1,0 @@
-# technonex.in
